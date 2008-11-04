@@ -1,1 +1,1 @@
-![2008-11-04](./2008-11-04.png)
+![2008-11-04](http://github.com/wearingagithubteeshirteveryday/tee_shirt/tree/master/2008-11-04/2008-11-04.png)
